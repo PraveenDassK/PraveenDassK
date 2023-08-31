@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PraveenDassK
 - 👀 I’m a Software Engineer
-- 📫 reach me @ praveen.dass@rayabharitech.com 
+- 📫 reach me @ praveendass@yahoo.com 
 - Orelse -6379552738
 
 <!---
